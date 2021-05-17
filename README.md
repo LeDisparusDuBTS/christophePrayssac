@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Chris #LeDisparu
+- 👀 I’m interested to play all VideoGames
+- 🌱 I’m currently learning BTS Système Numérique
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me by Discord : Le_Disparus#2409
